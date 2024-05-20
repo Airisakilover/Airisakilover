@@ -4,8 +4,11 @@
 
 
 C+H are good with me! Feel free to interact if you like my cosplay, I'm usually cosplaying Kokoro, Kaoru, Mizuki, or Minori
+
 The fandoms I'm in are: Genshin impact, Pjsk, Bandori, Pokemon, Vocaloid, and touhou
+
 Some of my favorite characters are: Saki tenma, Mizuki Akiyama, Chiori, Kokoro tsurumaki, and Kaoru Seta
+
 DO NOT COPY MY COSPLAYS PLEASE!
 
 
