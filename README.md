@@ -2,8 +2,7 @@
 
 
 
-
-C+H are good with me! Feel free to interact if you like my cosplay, I'm usually cosplaying Kokoro, Kaoru, Mizuki, or Minori
+Feel free to interact if you like my cosplay, I'm usually cosplaying Kokoro, Kaoru, Mizuki, or Minori
 
 The fandoms I'm in are: Genshin impact, Pjsk, Bandori, Pokemon, Vocaloid, and touhou
 
